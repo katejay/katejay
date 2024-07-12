@@ -13,8 +13,6 @@
 
 - 📫 How to reach me **jay.kate20@gmail.com**
 
-- 📄 Know about my experiences [https://katejay.github.io/Jay-Kate-Resume](https://katejay.github.io/Jay-Kate-Resume)
-
 - ⚡ Fun fact **I love gaming. If you play BGMI, send me a friend request @《EH》JAYKATE ➡ 5221 5255 31**
 
 <h3 align="left">Connect with me:</h3>
